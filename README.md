@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **gautamsidhanth14@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1e36J3IpKsslQA8OtRW2Iieu39pqvRPfO/view?usp=drive_link](https://drive.google.com/file/d/1e36J3IpKsslQA8OtRW2Iieu39pqvRPfO/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1bP95RVFkKBRsBXX0lIqTr1VRPpnbKpnc/view?usp=sharing]
 
 - ⚡ Fun fact **I am a OverThinker**
 
