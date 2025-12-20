@@ -24,7 +24,7 @@
 
 - 👨‍💻 All of my projects are available at **[https://gautam-portfolio-omega.vercel.app/](https://gautam-portfolio-omega.vercel.app/)**
 
-- 📄 Know about my experiences **[https://drive.google.com/file/d/1tZtG4WFU83ezmkmlimgTgYjMrDvGxEPa/view?usp=drive_link](https://drive.google.com/file/d/1tZtG4WFU83ezmkmlimgTgYjMrDvGxEPa/view?usp=drive_link)**
+- 📄 Know about my experiences **[https://drive.google.com/file/d/1VWM_h9ek4q3fsE7G-LXmQgSrsPPPzZ7R/view?usp=sharing](https://drive.google.com/file/d/1VWM_h9ek4q3fsE7G-LXmQgSrsPPPzZ7R/view?usp=sharing)**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
