@@ -1,4 +1,4 @@
-# Hi 👋, I'm Gautam Sidhanth
+# Hi 👋, I'm Goutam Sidhant
 
 ### Full Stack & DevOps Engineer | Fresher building scalable, real-world systems
 
